@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cristiano_teixeira117
-- 👀 I’m interested in ...n100000 follwos no tik tok
+- 👀 I’m interested in ...100000 follwos no tik tok
   
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
